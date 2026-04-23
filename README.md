@@ -39,4 +39,4 @@ I am passionate about data, technology, and problem-solving. I enjoy working wit
 
 ## 📫 Contact Me
 - Email: faizakhalwaya19@gmail.com  
-- LinkedIn: linkedin.com/in/faiz-akhalwaya-71237622b  
+- LinkedIn: linkedin.com/in/faiz-akhalwaya-71237622b 
